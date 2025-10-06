@@ -44,7 +44,7 @@
 - [ ] المشاركة في مشاريع مفتوحة المصدر
 
 ## 📫 كيف تصل إلي
-- **Email**: your-email@example.com
+- **Email**:ham0047k@gmail.com
 - **LinkedIn**: [همام عبدالسلام](https://linkedin.com/in/yourprofile)
 
 ## 💡 حقيقة ممتعة
